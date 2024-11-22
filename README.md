@@ -14,3 +14,5 @@ If like me you have rev. 1.0 and you have broken fans, maybe I can help you.
 ![trigorilla_1_0](https://github.com/user-attachments/assets/ee4e2470-15a0-41f7-b3cb-108b51af9d8c)
 
 ![i3MegaS](https://github.com/user-attachments/assets/472e8934-e5d1-49d7-8e2d-a601ab0af105)
+
+![FAN](https://github.com/user-attachments/assets/60ebc45c-790f-46a6-97a7-30fd307c4cd6)
